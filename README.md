@@ -1,4 +1,2 @@
 # AUG-1
-MY NAME IS BHAKTI
-JUST GO WITH THE COMMITMENT
-HELLO WISE GIRL
+execute each day with speed and accuracy
